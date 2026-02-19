@@ -92,7 +92,7 @@ https://komalgithub677.github.io/portfolio/
 
 ## 📬 Contact
 
-- 📧 Email: yourmail@gmail.com
+- 📧 Email: knarawade4@gmail.com
 - 💻 GitHub: https://github.com/komalgithub677
 - 🔗 LinkedIn: (Add your LinkedIn profile link)
 
